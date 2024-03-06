@@ -1,2 +1,2 @@
 # Nadya e Lorraynne 
-##  hellou brother :]
+##  Tudo bem amar os dois, eu amei...
